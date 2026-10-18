@@ -218,4 +218,4 @@ Mini Ninjas is available as a full free version with all features and updates in
 Download Mini Ninjas today and embark on your thrilling ninja journey! Enjoy a complete gaming experience that’s free, safe, and filled with action!
 
 ---
-**Last updated:** 2026-10-18 10:49:22 UTC
+**Last updated:** 2026-10-18 14:26:48 UTC
